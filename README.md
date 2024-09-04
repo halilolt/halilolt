@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @halilolt
-- 👀 I’m interested in ...Koş   
-- 🌱 I’m currently learning ... Forresst
-- 💞️ I’m looking to collaborate on ... Koşş
+- 👀 I’m interested in ...software
+- 🌱 I’m currently learning ... 
+- 💞️ I’m looking to collaborate on ... 
 - 📫 How to reach me ...adadaadsdadad
 - 😄 Pronouns: ...adadasdasdsad
 - ⚡ Fun fact: ...asddasdadsadad
